@@ -19,7 +19,7 @@ more space
 reduce your window 
 
 
-if you need more sapce
+if you need more space
 
 
 
